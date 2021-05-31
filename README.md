@@ -1,6 +1,6 @@
-### Hi there, I´m Anderson 👋
+### Hi there 👋
 
-- My name is Andeson, I am a junior Developer living in Germany und I am available to work remotely. 
+- My name is Andeson, I am a junior Developer, living in Germany und I am available to work remotely. 
 Contact-me on: 
 
 
